@@ -1,4 +1,4 @@
-#  
+#  welcome to bloxburg Scripts top is the best welcome to bloxburg Script, featuring anti-ban and auto-sell. Safe and powerful for all your needs.
 
 
 
